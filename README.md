@@ -9,7 +9,7 @@ Você pode me visitar no <a href="https://instagram.com/luisgabriel539" target="
 
 # Discord
 
-<a href="discord.com" target="_blank">luis ⍋#7318</a>
+<a href="https://discord.com/" target="_blank">Luis Gabriel#7318</a>
 
 # Twitter
 
